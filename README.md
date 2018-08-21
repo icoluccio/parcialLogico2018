@@ -1,0 +1,1 @@
+# parcialLogico2018
